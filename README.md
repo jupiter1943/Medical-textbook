@@ -9,3 +9,6 @@ Translate into Chinese//
 有这么一群人// there is such a group of people
 利用业余时间去翻译些本专业的书籍//they can use their spare time to translate some professional books
 希望对初学者有一定帮助//hoping to help beginners
+
+
+仅供学习，侵权立删//Just for learning，If there is any infringementImmediately delete
