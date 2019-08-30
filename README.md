@@ -11,4 +11,4 @@ Translate into Chinese//
 希望对初学者有一定帮助//hoping to help beginners
 
 
-仅供学习，侵权立删//Just for learning，If there is any infringementImmediately delete
+仅供学习，侵权立删//Just for learning，If there is any infringement，immediately delete
